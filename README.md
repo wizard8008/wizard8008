@@ -1,1 +1,1 @@
-Zdarova, banditi!
+Zdarova, banditi !
